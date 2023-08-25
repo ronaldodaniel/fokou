@@ -5,3 +5,4 @@
 fc barcelone est bete
 barcelone est vraiment bete
  les gens sont fieres
+les trains en allemagne sont les conneries didonc
